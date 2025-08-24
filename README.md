@@ -1,4 +1,4 @@
-<p align="center"><img width="1000" height="577" alt="tumblr_87862a9f7b249b612c1197668432444d_dfc5c0b0_2048" src="https://github.com/user-attachments/assets/7bdcb58d-27f8-40fd-bbfb-9c9e2c39ab2e" />
+<p align="center"><img width="1000" height="577" alt="tumblr_87862a9f7b249b612c1197668432444d_dfc5c0b0_2048" src="https://github.com/user-attachments/assets/e4f707a8-93a8-448a-82ca-081cccef5c92" />
 
 
  
@@ -7,6 +7,7 @@
 <p align="center"><b><a href="https://rentry.co/sakamotoo"> 🤍 rentry </a>⠀ꪆৎ⠀<a href="https://guns.lol/sweetshiyu"> ☁️ guns.lol </a>⠀₊ ⊹⠀<a href="https://en.pronouns.page/@sweetshiyu"> 🦢 prns </a>⠀†⠀<a href="https://blccm.atabook.org/"> 🖇️ ata </a>⠀♡ ̆̈⠀<a href="https://anton-ivanov.straw.page/"> 🎧 straw </a>⠀⋆˚࿔
 
 <p align="center"><img width="560" height="577" alt="tumblr_87862a9f7b249b612c1197668432444d_dfc5c0b0_2048" src="https://github.com/user-attachments/assets/9f6e3897-f3e7-43ed-9eaf-e56c30040b99" />
+
 
 
 
